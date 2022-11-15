@@ -21,3 +21,4 @@ https://drive.google.com/file/d/1odyEpF8F6BX73mo1yWkej1rarZWK3RTh/view?usp=share
 https://drive.google.com/file/d/1Cx9bDs2gNQ_KO2LB5EpslSQ_ZjDQfwAW/view?usp=share_link
 
 ### Assignment 6 Video link
+https://drive.google.com/file/d/1pVxFv9DQb1hgNrE1hpSHSBmSzMHqtrFn/view?usp=share_link
